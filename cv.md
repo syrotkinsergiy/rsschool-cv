@@ -1,4 +1,5 @@
 # **Sergiy Syrotkin**
+![](Avatarka.jpg)
 ## *1. Contacts*
 ### Phone number : +380673631047
 ### Mail : sergiy@syrotlin.com
