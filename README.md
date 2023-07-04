@@ -1,1 +1,1 @@
-# rsschool-cv
+https://syrotkinsergiy.github.io/rsschool-cv/cv

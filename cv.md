@@ -2,7 +2,7 @@
 ![](Avatarka.jpg)
 ## *1. Contacts*
 ### Phone number : +380673631047
-### Mail : sergiy@syrotlin.com
+### Mail : sergiy@syrotkin.com
 ### Discord : syrotkinsergiy#0202
 ### Adress : Bucha , Ukraine
 ## *2. Goals*
